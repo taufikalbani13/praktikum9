@@ -7,7 +7,7 @@
 
 # KELAS : TI.22.A.3
 
-Disini saya akan menjelaskan tentang latihan yg kemarin 
+Disini saya akan menjelaskan tentang latihan pada hari selasa 13-12-2022
 
 # pertama
 
